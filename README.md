@@ -24,7 +24,7 @@ I would highly recommending checking the Metacrafters academy for more such cont
 
 ## Authors
 
-Contributors names and contact info:
+Contributors names and contact info: aniket sakhare
 
 
 
